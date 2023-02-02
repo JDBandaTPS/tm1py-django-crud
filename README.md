@@ -1,0 +1,1 @@
+Check the link for more info https://tourmaline-umbra-1dd.notion.site/TM1-API-cd1aeb7673cf4735923a1ccf8fae5460
